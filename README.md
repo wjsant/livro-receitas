@@ -7,6 +7,7 @@ Ola! bem vindo ao meu livro de receitas :wave:
 - Pavê
 
 - Lasanha
+- Panquecas Americanas
 
 - Arroz Doçe 
 
