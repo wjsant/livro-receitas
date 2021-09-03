@@ -9,7 +9,7 @@ Ola! bem vindo ao meu livro de receitas :wave:
 - Lasanha
 - Panquecas Americanas
 
-- Arroz Doçe 
+- Arroz Doçe
 
   
 
